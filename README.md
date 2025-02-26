@@ -6,19 +6,13 @@ Looking for junior data analyst position in healthcare indstury
 
 # Education
 
-- dkdkdkdkdkdkdkdkdk
-- asdf
-- asdf
-- asdf
+- tc hight school
 
 # Experience
 
--djdjd
--djdjdj
+cinema
 
 # Skills
 
-1. sksks
-2. dkdkd
-3. dkdkd
+communicate
 
